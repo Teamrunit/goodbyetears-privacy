@@ -1,2 +1,0 @@
-# goodbyetears-privacy
-Policy
